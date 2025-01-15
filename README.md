@@ -1,5 +1,5 @@
-# Policy Suggestion through revitalization unused school
-[2021] Policy Suggestion through revitalization unused school: 미활용 폐교 활용을 통한 정책 제언     
+# Policy for unused school
+[2021] Policy for unused school: 미활용 폐교 활용을 통한 정책 제언     
 
 _Update: 2022-04-23_   
 ## **Index**
